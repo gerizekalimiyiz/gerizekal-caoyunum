@@ -1,0 +1,1 @@
+oyunda ok tuşlarıyla ilerleyip farenin sol tıkına basarak ateş edebilirsiniz ve fare imleci nerdeyse attığımız yumurtada oraya gidiyor ayrıca 20 canınız var bu canlar biterse ölüyorsunuz oyunun sonunu üşendiğim için eklemedim
